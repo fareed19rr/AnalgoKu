@@ -1,3 +1,3 @@
-Muhamad Farid Ridho Rambe
-140810180033
-Kelas A
+Muhamad Farid Ridho Rambe\
+140810180033\
+Kelas A\
